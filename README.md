@@ -1,4 +1,4 @@
-### Save our Soul
+### SOS (Save Our Soul)
 
 The "SOS Emergency App" has been meticulously crafted to offer a robust solution for urgent situations. This app goes beyond the conventional mobile applications, as it is designed to be a true lifeline during times of crisis.
 
